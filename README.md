@@ -1,0 +1,2 @@
+# NUBFY
+THE NEXT COIN
